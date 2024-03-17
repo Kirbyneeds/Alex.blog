@@ -43,7 +43,7 @@ Die erste offizielle Bern Pride war 2023, er wurde von den Eurogames finanziert 
 
 **Wie ist es dazu gekommen das sie ein mitglied von Bern Pride wurden?**
 
-Angefanngen hat alles mit einem Instagram Post, wo sie einnen Aufruf gemacht haben das sie ein Infotreffen organiseren und Workshop gemacht in der Brasserie Lorrsine. Dann ding ich Letztes Jahre mitte Herbst an diesen Workshop und hab mich dannach gemeldet um im Organisations Komite kurz OK mitzu machen. Dann hat es im Dezember ein Online Treffen.
+Angefanngen hat alles mit einem Instagram Post, wo sie einnen Aufruf gemacht haben das sie ein Infotreffen organiseren und Workshop gemacht in der Brasserie Lorrsine. Dann ding ich Letztes Jahre mitte Herbst an diesen Workshop und hab mich dannach gemeldet um im Organisations Komite kurz OK mitzu machen. Dann hat es im Dezember ein Online Treffen, wo man schonmal schauen konnte wer zu welchem Ressort past.
 
 ![Organigramm der Bern Pride von Alex Rudovich](prasentation-5.png "Organigramm der Bern Pride")
 
