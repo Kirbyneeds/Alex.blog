@@ -6,9 +6,11 @@ pinned = false
 image = "microsoftteams-image-34-.png"
 description = "Ein Interview mit einer Person die mithilft die Bern Pride zu organisieren und über ihren weg zu ihrer stelle in der Bern Pride."
 +++
+
+
 **Was machen Sie Hauptberuflich?** 
 
-Ich habe letztens Sommer die Lehre abgeschlossen, als Zeichnerin, in Fachrichtung Landschaftsarchitektur. Ich arbeite jetzt 80% in einem Landschaftsarchitekturbüro. 
+Ich habe letztens Sommer die Lehre abgeschlossen, als Zeichnerin, in Fachrichtung Landschaftsarchitektur. Ich arbeite jetzt 80% in einem Landschaftsarchitekturbüro. Und denn Freinen Tag kann ich dann benutzen um etwas für die Bern Pride zu machen.
 
 **Wie sind Sie eigentlich zu diesem Beruf gekommen?** 
 
