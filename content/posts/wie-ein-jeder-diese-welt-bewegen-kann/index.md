@@ -37,7 +37,7 @@ Ich habe zuerst das Gymnasium besucht, unteranderem weil ich nicht wusste, was i
 
 {{<box>}}
 
-Die erste offizielle Bern Pride war 2023, er wurde von den Eurogames finanziert weswegen ein grösseres fest organsiert werden konnte. Eurogames ist ein Sportverein der Queere Events sponsern, jedes Jahr in einem anderen Land. Da eine Gruppe für Bern Pride schon gebildet wurde, Orgniseren sie jetzt einfach die Zukünftige Bern Prides.
+Die erste offizielle Bern Pride war 2023, sie wurde von den Eurogames finanziert weswegen ein grösseres fest organsiert werden konnte. Eurogames ist ein Sportverein der Queere Events sponsern, jedes Jahr in einem anderen Land. Da eine Gruppe für Bern Pride schon gebildet wurde, Orgniseren sie jetzt einfach die Zukünftige Bern Prides.
 
 {{</box>}}
 
@@ -49,6 +49,6 @@ Angefanngen hat alles mit einem Instagram Post, wo sie einnen Aufruf gemacht hab
 
 {{<box>}}
 
-Die Bern Pride hat Zwei Peronen im Co-Präsidium und Acht Ressort in welchen wiederum midestens zwei Perosnnen sind.
+Die Bern Pride hat Zwei Peronen im Co-Präsidium und Acht Ressort in welchen wiederum midestens zwei Perosnnen sind. Insgesammt im **O**rganisations **K**omite sind 27 Personnen, in manchen Ressors hattes mehr als zwei personen und ausserdem gibt es Personnen die mithelfen aber nicht Co-Verantwortlich für das OK sind.
 
 {{</box>}}
