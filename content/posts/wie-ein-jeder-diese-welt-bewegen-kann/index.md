@@ -3,7 +3,7 @@ title = "Wie ein jeder diese Welt bewegen kann"
 date = "2024-03-15"
 draft = false
 pinned = false
-tags = ["LGBTQIA+", "Awareness", "Interve", "Queer"]
+tags = ["LGBTQIA+", "Awareness", "Interve", "Queer", "Aktivismus"]
 image = "microsoftteams-image-34-.png"
 description = ""
 +++
@@ -52,3 +52,11 @@ Angefanngen hat alles mit einem Instagram Post, wo sie einnen Aufruf gemacht hab
 Die Bern Pride hat Zwei Peronen im Co-Präsidium und Acht Ressort in welchen wiederum midestens zwei Perosnnen sind. Insgesammt im **O**rganisations **K**omite sind 27 Personnen, in manchen Ressors hattes mehr als zwei personen und ausserdem gibt es Personnen die mithelfen aber nicht Co-Verantwortlich für das OK sind.
 
 {{</box>}}
+
+Im Januar hatten wir dann das erste OK treffen in der Brasserie undzwar in einem Raum den sie hier vemieten. Obwohl es viel zutun gab und sich sogut wie nimand kannte, gabe es eine angenehme und entspante stimmung und alle waren motiviert dort zu sein, schlisslich waren alle auch freiwillig da. Wir hatten dann die Finanzen, ressort aufbau und Themen für die Bern Pride angeschaut.
+
+**Was hat sie dazu Bewegt Acctive bei der Bern Pride mit zumachen?**
+
+Schon länger interesiere ich mich für politic und es gibt gennerel viele Themen die wichtig für mich sind. Wehrend der lehre ist mir klar geworden, dass ich mich führ mehr angajiren wolte als ich bisjetzt gemacht hatte, ich bin bei Protest acctionen mitgelaufent, auf instagram habe ich mich auch über acctionen und wann sie stadfinden infromiert und ich unterschriebe Peditionen, aber ich wollte selber mithelfen was zu organiseren. Meine Vertivfungsarbeit wehrend der lehre habe ich dann über Queeren Aktivismus geschrieben, mit focus auf Aktivismus gegen Queere gewlt, mit dem hintergedaken as ich das slber mal machen wollte, ich wusste aber nicht genau wo.
+
+`Awareness bedeutet Achtsamkeit. Das bedeutet, dass wir uns bewusst sind, dass es verschiedene Menschen gibt, auch mit verschiedenen Hintergründen, verschiedenen Bedürfnissen und Wahrnehmungen, und dass wir das Respektieren. Das bedeutet, dass wir hinschauen und nicht einfach ausgehen, dass alle eh friedlich und nett zueinander sind, sondern dass wir uns auch dafür einsetzen, dass es so ist. Dass wir zum Beispiel Übergriffe oder Diskriminierung vermeiden und einschreiten, wenn es zu solchen Vorfällen kommt.`
