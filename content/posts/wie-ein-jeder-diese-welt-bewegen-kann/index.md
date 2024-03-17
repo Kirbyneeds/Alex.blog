@@ -14,4 +14,4 @@ Ich habe letztens Sommer die Lehre abgeschlossen, als Zeichnerin, in Fachrichtun
 
 Ich habe zuerst das Gymnasium besucht, unteranderem weil ich nicht wusste, was ich eigentlich in der Zukunft genau machen wollte. Später, gegen das Ende des Gymnasiums habe ich aber gemerkt dass es für mich sehr viel war. Dann realisierte ich, dass ich nicht studieren möchte und habe deswegen auch das letzte Jahr nicht wiederholt, sondern habe eine Berufslehre angefangen als Zeichnerin, Fachrichtung Landschaftsarchitektur. Unteranderem weil man da den Aussenbereich plant und mitgestalten kann. Und ich finde der Aussenbereich, der für jeden da ist sehr wertvoll und es ist schön ein Teil davon zu sein. 
 
-{{</Die erste offizielle Bern Pride, 20023>}}
+{{</D Die erste offizielle Bern Pride war 20023, er wurde von den Eurogames finanziert weswegen ein grösseres fest organsiert werden konnte. Eurogames ist ein Sportverein der Queere Events sponsern, jedes Jahr in einem anderen Land.>}}
