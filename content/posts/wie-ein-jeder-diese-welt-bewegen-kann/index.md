@@ -4,8 +4,10 @@ date = "2024-03-15"
 draft = false
 pinned = false
 image = "microsoftteams-image-34-.png"
-description = "Ein Interview mit einer Person die mit hilft die Bern Pride zu organisieren und wie alles mit einem Instagramm Post begann."
+description = ""
 +++
+Ein Interview mit einer Person die mit hilft die Bern Pride zu organisieren und wie alles mit einem Instagram Post begann.
+
 {{</Name: Lena Maria Carnal
 
 Alter: 24
