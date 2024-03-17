@@ -37,7 +37,7 @@ Ich habe zuerst das Gymnasium besucht, unteranderem weil ich nicht wusste, was i
 
 {{<box>}}
 
-Die erste offizielle Bern Pride war 20023, er wurde von den Eurogames finanziert weswegen ein grösseres fest organsiert werden konnte. Eurogames ist ein Sportverein der Queere Events sponsern, jedes Jahr in einem anderen Land. Da eine Gruppe für Bern Pride schon gebildet wurde, Orgniseren sie jetzt einfach die Zukünftige Bern Prides.
+Die erste offizielle Bern Pride war 2023, er wurde von den Eurogames finanziert weswegen ein grösseres fest organsiert werden konnte. Eurogames ist ein Sportverein der Queere Events sponsern, jedes Jahr in einem anderen Land. Da eine Gruppe für Bern Pride schon gebildet wurde, Orgniseren sie jetzt einfach die Zukünftige Bern Prides.
 
 {{</box>}}
 
