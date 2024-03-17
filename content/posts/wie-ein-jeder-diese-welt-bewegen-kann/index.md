@@ -46,3 +46,9 @@ Die erste offizielle Bern Pride war 20023, er wurde von den Eurogames finanziert
 Angefanngen hat alles mit einem Instagram Post, wo sie einnen Aufruf gemacht haben das sie ein Infotreffen organiseren und Workshop gemacht in der Brasserie Lorrsine. Dann ding ich Letztes Jahre mitte Herbst an diesen Workshop und hab mich dannach gemeldet um im Organisations Komite kurz OK mitzu machen. Dann hat es im Dezember ein Online Treffen.
 
 ![Organigramm der Bern Pride von Alex Rudovich](prasentation-5.png "Organigramm der Bern Pride")
+
+{{<box>}}
+
+Die Bern Pride hat Zwei Peronen im Co-Präsidium und Acht Ressort in welchen wiederum midestens zwei Perosnnen sind.
+
+{{</box>}}
