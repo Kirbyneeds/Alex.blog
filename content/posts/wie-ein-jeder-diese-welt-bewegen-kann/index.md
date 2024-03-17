@@ -18,11 +18,11 @@ Name: Lena Maria Carnal
 
 Alter: 24
 
-Bern Pride OC: Mitverantwortliche für Awareness
+Bern Pride OK: Mitverantwortliche für Awareness
 
 {{</box>}}
 
-
+Der gesammte eingang zum Caffe waren überall mit Graffity beschmückt, dass Lokall selbst war von innen Gemütlich eingerichtet, hier und dort waren Flyer aufgehängt und es waren alle arten von Meschen zu sehen, die sich alle zusammen im Lokal einegfunden haben.
 
 **Was machen Sie Hauptberuflich?** 
 
@@ -40,4 +40,4 @@ Die erste offizielle Bern Pride war 20023, er wurde von den Eurogames finanziert
 
 **Wie ist es dazu gekommen das sie ein mitglied von Bern Pride wurden?**
 
-Angefanngen hat alles mit einem Instagram Post, wo sie einnen Aufruf gemacht haben das sie ein Infotreffen organiseren.
+Angefanngen hat alles mit einem Instagram Post, wo sie einnen Aufruf gemacht haben das sie ein Infotreffen organiseren und Workshop gemacht in Brasserie Lorrsine.
