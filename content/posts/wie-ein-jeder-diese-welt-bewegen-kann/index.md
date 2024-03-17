@@ -12,6 +12,8 @@ Alter: 24
 
 Bern Pride OC: Mitverantwortliche für Awareness>}}
 
+
+
 **Was machen Sie Hauptberuflich?** 
 
 Ich habe letztens Sommer die Lehre abgeschlossen, als Zeichnerin, in Fachrichtung Landschaftsarchitektur. Ich arbeite jetzt 80% in einem Landschaftsarchitekturbüro. Und denn Freinen Tag kann ich dann benutzen um etwas für die Bern Pride zu machen.
@@ -20,4 +22,8 @@ Ich habe letztens Sommer die Lehre abgeschlossen, als Zeichnerin, in Fachrichtun
 
 Ich habe zuerst das Gymnasium besucht, unteranderem weil ich nicht wusste, was ich eigentlich in der Zukunft genau machen wollte. Später, gegen das Ende des Gymnasiums habe ich aber gemerkt dass es für mich sehr viel war. Dann realisierte ich, dass ich nicht studieren möchte und habe deswegen auch das letzte Jahr nicht wiederholt, sondern habe eine Berufslehre angefangen als Zeichnerin, Fachrichtung Landschaftsarchitektur. Unteranderem weil man da den Aussenbereich plant und mitgestalten kann. Und ich finde der Aussenbereich, der für jeden da ist sehr wertvoll und es ist schön ein Teil davon zu sein. 
 
-{{<D Die erste offizielle Bern Pride war 20023, er wurde von den Eurogames finanziert weswegen ein grösseres fest organsiert werden konnte. Eurogames ist ein Sportverein der Queere Events sponsern, jedes Jahr in einem anderen Land.>}}
+{{<Die erste offizielle Bern Pride war 20023, er wurde von den Eurogames finanziert weswegen ein grösseres fest organsiert werden konnte. Eurogames ist ein Sportverein der Queere Events sponsern, jedes Jahr in einem anderen Land. Da eine Gruppe für Bern Pride schon gebildet wurde, Orgniseren sie jetzt einfach die Zukünftige Bern Prides.>}}
+
+**Wie ist es dazu gekommen das sie ein mitglied von Bern Pride wurden?**
+
+Angefanngen hat alles mit einem Instagram Post, wo sie einnen Aufruf gemacht haben das sie ein Infotreffen organiseren.
