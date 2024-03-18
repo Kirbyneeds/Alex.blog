@@ -59,9 +59,9 @@ Im Januar hatten wir dann das erste OK treffen in der Brasserie undzwar in einem
 
 Schon länger interesiere ich mich für politic und es gibt gennerel viele Themen die wichtig für mich sind. Wehrend der lehre ist mir klar geworden, dass ich mich führ mehr angajiren wolte als ich bisjetzt gemacht hatte, ich bin bei Protest acctionen mitgelaufent, auf instagram habe ich mich auch über acctionen und wann sie stadfinden infromiert und ich unterschriebe Peditionen, aber ich wollte selber mithelfen was zu organiseren. Meine Vertivfungsarbeit wehrend der lehre habe ich dann über Queeren Aktivismus geschrieben, mit focus auf Aktivismus gegen Queere gewlt, mit dem hintergedaken as ich das slber mal machen wollte, ich wusste aber nicht genau wo.
 
-Awareness bedeutet Achtsamkeit. Das bedeutet, dass wir uns bewusst sind, dass es verschiedene Menschen gibt, auch mit verschiedenen Hintergründen, verschiedenen Bedürfnissen und Wahrnehmungen, und dass wir das Respektieren. Das bedeutet, dass wir hinschauen und nicht einfach ausgehen, dass alle eh friedlich und nett zueinander sind, sondern dass wir uns auch dafür einsetzen, dass es so ist. Dass wir zum Beispiel Übergriffe oder Diskriminierung vermeiden und einschreiten, wenn es zu solchen Vorfällen kommt.
-
-*Lena Maria Carnal*
+> "Awareness bedeutet Achtsamkeit. Das bedeutet, dass wir uns bewusst sind, dass es verschiedene Menschen gibt, auch mit verschiedenen Hintergründen, verschiedenen Bedürfnissen und Wahrnehmungen, und dass wir das Respektieren. Das bedeutet, dass wir hinschauen und nicht einfach ausgehen, dass alle eh friedlich und nett zueinander sind, sondern dass wir uns auch dafür einsetzen, dass es so ist. Dass wir zum Beispiel Übergriffe oder Diskriminierung vermeiden und einschreiten, wenn es zu solchen Vorfällen kommt."
+>
+> *Lena Maria Carnal*
 
 **Welche aufgabe haben sie in der Bern Prid OK?**
 
@@ -72,7 +72,7 @@ Wir sind im Team Awareness 2 Personen. Die dafür verantwortlich sind, jetzt ger
 
 Danach gibt es die Awareness Charta, das ist ein bisschen wie eine Zusammenfassung vom Awareness Konzept, wo auch Sachen drinstehten wie:
 
-*  Übergriffe Zählen alls solche wenn sie von der Perosn als übergiffe wargenommen werden
+* Übergriffe Zählen alls solche wenn sie von der Perosn als übergiffe wargenommen werden
 * Das man sich an uns wennden kann wenn irgenetwas ist
 * Hilfe Codes bei der Bar
 
@@ -82,7 +82,7 @@ Das Awareness Konsept ist mehr für unser OK gedacht, wird aber auch für Transp
 
 Meine erste Demo war tatsächlich eine Klimademo. Das war 2019 und ich war damals am Gymnasium in Thun. Leute haben mir gesagt, "Es gibt eine Demo, willst du Mitkommen?" Ich weiss noch das wir uns den Halbtag frei genommen haben und im BG raum Plakate bastelten, bevor die Demo los ging. Ich finde bei demonstrationen hat es immer so eine Tolle stimmung weil sich alle für ein ziel versammelt haben und für ein Thema gemeinsam einstehen und dannach auch gemeinsam diese Parolen ruffen.
 
-> Uffe mit dem klimmaziele abbe mit dem CO² 
+> "Uffe mit dem klimmaziele abbe mit dem CO²" 
 >
 > *Lena Maria Carnal*
 
