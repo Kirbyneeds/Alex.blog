@@ -88,4 +88,8 @@ Meine erste Demo war tatsächlich eine Klimademo. Das war 2019 und ich war damal
 
 **Was hoffen Sie zu veränder und wie hoffen Sie wirken sich Ihre Aktionen im ideal fall aus?**
 
-In meiner idealen zukunft währe es sicher eine Welt, in der alle zueinander schauen, in der es keine Diskriminierung gibt, in der alle Menschen so akzeptiert werden, wie sie sind und wir auch schauen, dass es fair ist, dass es gerecht ist, in der wir Rücksicht nehmen.
+In meiner idealen zukunft währe es sicher eine Welt, in der alle zueinander schauen, in der es keine Diskriminierung gibt, in der alle Menschen so akzeptiert werden, wie sie sind und wir auch schauen, dass es fair ist, dass es gerecht ist, in der wir Rücksicht nehmen. Ich glube aber nicht das wir an einem Punkt sind, an dem es wahrscheinlich in einer Lebenszeit erreicht werden kann, es gibt einfach viel zu viel negatives, das noch da ist. Es endert sich aber eiges wenn man zumindest in der Schweiz die Entwicklung anschauen, ist es jetzt auch besser als es einmal war und es scheint sich eigentlich in einer positive richtung zu Entwicklung.  
+
+> "Und dann mach ich, was ich kann, dass das weiter so geht und wir werden vielleicht irgendwann dort sein."
+>
+> *Lena Maria Carnal*
