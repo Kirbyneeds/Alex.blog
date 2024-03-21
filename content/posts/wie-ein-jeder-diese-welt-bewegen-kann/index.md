@@ -23,6 +23,8 @@ Bern Pride OK: Mitverantwortliche für Awareness
 
 {{</box>}}
 
+![]()
+
 Der gesammte eingang zum Caffe waren überall mit Graffity beschmückt, dass Lokall selbst war von innen Gemütlich eingerichtet, hier und dort waren Flyer aufgehängt und es waren alle arten von Meschen zu sehen, die sich alle zusammen im Lokal einegfunden haben.
 
 *Alex Rudovich*
