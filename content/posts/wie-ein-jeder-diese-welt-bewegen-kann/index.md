@@ -37,7 +37,7 @@ Ich habe zuerst das Gymnasium besucht, unter anderem, weil ich nicht wusste, was
 
 {{<box>}}
 
-Die erste offizielle Bern Pride war 2023, sie wurde von den Eurogames finanziert weswegen ein grösseres fest organsiert werden konnte. Eurogames ist ein Sportverein der Queere Events sponsern, jedes Jahr in einem anderen Land. Da eine Gruppe für Bern Pride schon gebildet wurde, Orgniseren sie jetzt einfach die Zukünftige Bern Prides.
+Die erste offizielle Bern Pride fand 2023 statt. Sie wurde von den Eurogames finanziert weswegen ein grösseres fest organsiert werden konnte. Eurogames ist ein Sportverein der Queere Events sponsern, jedes Jahr in einem anderen Land. Da eine Gruppe für Bern Pride schon gebildet wurde, Orgniseren sie jetzt einfach die Zukünftigen Bern Prides ohne die mithilfe von Eurogames.
 
 {{</box>}}
 
@@ -45,11 +45,11 @@ Die erste offizielle Bern Pride war 2023, sie wurde von den Eurogames finanziert
 
 Angefangen hat alles mit einem Instagram-Post, wo sie einen Aufruf gemacht haben, dass sie ein Infotreffen organisieren und einen Workshop in der Brasserie Lorraine machen. Dann ging ich letzten Herbst in die Mitte des Jahres zu diesem Workshop und habe mich danach gemeldet, um im Organisationskomitee kurz OK mitzumachen. Dann gab es im Dezember ein Online-Treffen, wo man schon mal schauen konnte, wer zu welchem Ressort passt.
 
-![Organigramm der Bern Pride von Alex Rudovich](prasentation-5.png "Organigramm der Bern Pride")
+![Organigramm der Bern Pride, von Alex Rudovich](prasentation-5.png "Organigramm der Bern Pride")
 
 {{<box>}}
 
-Die Bern Pride hat zwei Personen im Co-Präsidium und acht Ressorts, in denen wiederum mindestens zwei Personen sind. Insgesamt im **O**rganisations **K**omite sind 27 Personen, in manchen Ressorts hatte mehr als zwei Personen, und außerdem gibt es Personen, die mithelfen, aber nicht Co-Verantwortlich für das OK sind.
+Die Bern Pride hat zwei Personen im Co-Präsidium und acht Ressorts, in denen wiederum mindestens zwei Personen sind. Insgesamt im **O**rganisations **K**omite sind 27 Personen. In manchen Ressorts hatte mehr als zwei Personen, und ausserdem gibt es Personen, die mithelfen, aber nicht Co-Verantwortlich für das OK sind.
 
 {{</box>}}
 
