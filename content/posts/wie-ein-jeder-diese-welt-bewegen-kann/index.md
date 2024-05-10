@@ -21,7 +21,7 @@ Co-Verantwortliche für Awareness bei der Bern Pride im OK tätig.
 
 {{</box>}}
 
-![Bild von Lena Maria Carnal geschossen von Alex Rudovich](microsoftteams-image-41-.png "Bild von Lena Maria Carnal geschossen von Alex Rudovich")
+![Lena Maria Carnal von Alex Rudovich](microsoftteams-image-41-.png "Lena Maria Carnal von Alex Rudovich")
 
 Der gesamte Eingang zum Café war überall mit Graffiti geschmückt. Das Lokal selbst war von innen gemütlich eingerichtet, hier und dort waren Flyer aufgehängt, und es waren alle Arten von Menschen zu sehen, die sich alle zusammen im Lokal eingefunden haben.
 
