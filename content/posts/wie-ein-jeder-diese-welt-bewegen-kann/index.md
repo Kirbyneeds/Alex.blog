@@ -15,11 +15,9 @@ Ein Interview mit einer Person, die bei der Organisation der Bern Pride hilft un
 
 {{<box>}}
 
-Name: Lena Maria Carnal
+Lena Maria Carnal ist 24 Jahre alt, hat eine Lehre als Zeichnerin abgeschlossen und ist als
 
-Alter: 24
-
-Bern Pride OK: Mitverantwortliche für Awareness
+Co-Verantwortliche für Awareness bei der Bern Pride im OK tätig.
 
 {{</box>}}
 
@@ -55,7 +53,7 @@ Die Bern Pride hat zwei Personen im Co-Präsidium und acht Ressorts, in denen wi
 
 {{</box>}}
 
-Im Januar hatten wir dann das erste OK treffen in der Brasserie undzwar in einem Raum den sie hier vemieten. Obwohl es viel zutun gab und sich sogut wie nimand kannte, gabe es eine angenehme und entspante stimmung und alle waren motiviert dort zu sein, schlisslich waren alle auch freiwillig da. Wir hatten dann die Finanzen, ressort aufbau und Themen für die Bern Pride angeschaut.
+Im Januar hatten wir dann das erste OK Treffen in der Brasserie, und zwar in den Räumlichkeiten, die sie hier vermieten. Obwohl es viel zu tun gab und sich so gut wie niemand kannte, gab es eine angenehme und entspannte Stimmung, und alle waren motiviert dort zu sein, schließlich waren alle auch freiwillig da. Wir hatten dann die Finanzen, Ressortaufbau und Themen für die Bern Pride angeschaut.
 
 **Was hat sie dazu Bewegt Acctive bei der Bern Pride mit zumachen?**
 
