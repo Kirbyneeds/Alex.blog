@@ -50,4 +50,4 @@ Denn irgendwann, das weiss ich, wird die Nacht mir Gnade geben,
 
 Und ich werde endlich schlafen, tief und friedlich, ohne zu beben,
 
-nach nur drei Melatonintabletten von zu hoher dosis
+nach nur drei Melatonintabletten von zu hoher dosis.
