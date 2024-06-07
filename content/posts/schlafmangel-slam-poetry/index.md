@@ -20,15 +20,15 @@ Der Stress von morgen lässt mich nicht in den Schlaf.
 
 Die Augen schwer, der Kopf ist leer, doch Träume bleiben fern,   
 
-Stattdessen zähl ich die Minuten, jede Stunde ist ein Stern.   
+Stattdessen zähl ich die Minuten, jede Secunde Tik Tak Tik Tak.   
 
 Der Wecker klingelt viel zu früh, der Tag beginnt mit einem kopf der ist nicht klar,  
 
 Mit Augenringen und müden Blicken kämpf ich mich durch den Tag. 
 
-Koffein als Retter, für manche flüssiges Gold,  
+Koffein als Retter für viele, für manche flüssiges Gold,  
 
-Doch das bringt mir kein einen Schub, mein Körper bleibt sold.   
+Doch das bringt mir kein einen Schub, mein Körper bleibt stumm.   
 
 Die Schule zieht sich, der Lehrer spricht, doch ich höre nur ein Rauschen,   
 
@@ -42,10 +42,12 @@ Am Schreibtisch, am Morgen, am Abend, in der Nacht,
 
 Versuche, den Schlaf zu finden, doch er bleibt immer sacht. 
 
-Schlafmangel, du tückischer Dieb, raubst mir meine Zeit,   
+Schlafmangel, du tückischer Dieb, raubst mir meine Schlaf im tausch führ mehr Zeit,   
 
 Doch ich kämpfe weiter, suche Ruhe, suche Geborgenheit.   
 
-Denn irgendwann, das weiß ich, wird die Nacht mir Gnade geben,   
+Denn irgendwann, das weiss ich, wird die Nacht mir Gnade geben,   
 
-Und ich werde endlich schlafen, tief und friedlich, ohne zu beben.
+Und ich werde endlich schlafen, tief und friedlich, ohne zu beben,
+
+nach nur drei Melatonintabletten von zu hoher dosis
