@@ -1,13 +1,11 @@
 +++
 title = "About me"
 draft = false
+image = "guillaume-de-germain-pgp8fvrwcts-unsplash-1-.jpg"
 description = ""
-image = "/img/default-author.jpg"
 +++
-![](/img/default-author.jpg)
+![](guillaume-de-germain-pgp8fvrwcts-unsplash-1-.jpg)
 
-## My Name
+## Alex Rudovich
 
-mail@example.org
-
-Here should be some info about me...
+alex.rudovich@stud.muristalden.ch
