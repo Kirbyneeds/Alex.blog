@@ -3,7 +3,7 @@ title = "Wie ein jeder diese Welt bewegen kann"
 date = "2024-03-15"
 draft = false
 pinned = false
-tags = ["LGBTQIA+", "Awareness", "Interve", "Queer", "Aktivismus"]
+tags = ["LGBTQIA+", "Awareness", "Interve", "Queer", "Aktivismus", "CSD", "Pride"]
 image = "microsoftteams-image-34-.png"
 description = ""
 +++
