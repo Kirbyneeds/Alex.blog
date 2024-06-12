@@ -1,6 +1,6 @@
 +++
 headless = true
 name = "Alex Rudovich"
-image = "/img/default-author.jpg"
+image = "/media/guillaume-de-germain-pgp8fvrwcts-unsplash-1-.jpg"
 url = "/about/"
 +++
