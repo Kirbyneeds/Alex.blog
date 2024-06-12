@@ -21,7 +21,7 @@ Nervös stand ich vor dem Restaurant, während ich auf meine Interviewperson war
 
 **Was bewegt einen zum Aktivismus**
 
-Lena Maria Carnal hatte schon während der gymnasialen Zeit mit Aktivismus angefangen. Begonnen hat alles mit einer Klimademo 2019, dort verspürte sie zum ersten Mal, wie es sich anfühlt, Plakate mit ihren Freunden zu gestalten, das Gemeinschaftsgefühl davon, dass sich eine große Menge von Menschen für eine gemeinsame Sache versammelt hat, und der Ruf von Parolen als Gruppe, die alle Veränderung fordern. All diese Dinge erinnern daran, dass man nicht allein auf dieser Welt den Wunsch nach Veränderung im Herzen trägt.
+Lena Maria Carnal hatte bereits während ihrer gymnasialen Zeit mit Aktivismus begonnen. Alles begann mit einer Klimademo im Jahr 2019. Dort verspürte sie zum ersten Mal, wie es sich anfühlt, Plakate mit ihren Freunden zu gestalten, das Gemeinschaftsgefühl davon, dass sich eine große Menge von Menschen für eine gemeinsame Sache versammelt hatte, und der Ruf von Parolen als Gruppe, die alle Veränderung fordern. All diese Dinge erinnern daran, dass man nicht allein auf dieser Welt, den Wunsch nach Veränderung im Herzen trägt.
 
 > *"Bei Demonstrationen ist immer eine sehr coole Stimmung, finde ich, dass alle für ein Thema gemeinsam einstehen und diese Parolen rufen. Das gibt dann einen extremen Zusammenhalt und auch sehr viel Kraft, sich weiter einzusetzen."*
 >
