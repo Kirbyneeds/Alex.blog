@@ -24,6 +24,8 @@ Nervös stand ich vor dem Restaurant, während ich auf meine Interviewperson war
 Lena Maria Carnal hatte schon während der gymnasialen Zeit mit Aktivismus angefangen. Begonnen hat alles mit einer Klimademo 2019, dort verspürte sie zum ersten Mal, wie es sich anfühlt, Plakate mit ihren Freunden zu gestalten, das Gemeinschaftsgefühl davon, dass sich eine große Menge von Menschen für eine gemeinsame Sache versammelt hat, und der Ruf von Parolen als Gruppe, die alle Veränderung fordern. All diese Dinge erinnern daran, dass man nicht allein auf dieser Welt den Wunsch nach Veränderung im Herzen trägt.
 
 > *"Bei Demonstrationen ist immer eine sehr coole Stimmung, finde ich, dass alle für ein Thema gemeinsam einstehen und diese Parolen rufen. Das gibt dann einen extremen Zusammenhalt und auch sehr viel Kraft, sich weiter einzusetzen."*
+>
+> *Lena Maria Carnal*
 
 Diese Erfahrung, mit Menschen für ein Ziel einzustehen und zusammen etwas zu tun, hat sie damals inspiriert. Während der Ausbildung wurde ihr klar, dass sie sich mehr engagieren wollte und würde, als sie zuvor schon gemacht hatte. Schon davor lief sie bei Demonstrationszügen mit, hielt sich politisch auf dem Laufenden und unterschrieb Petitionen. Aus diesem Beschluss heraus hat sie ihre Vertiefungsarbeit zu queeren Aktivismus und Gewalt gegen diesen gemacht, mit dem Hintergedanken, dass sie das auch machen wollte. Die Neubildung von Bern Pride hat sich dann zu einem guten Zeitpunkt angeboten und sie beschloss, direkt mitzumachen. Nun ist sie Co-Verantwortliche für Awareness. Sie arbeitet heute 80 % in einem Landschaftsarchitekturbüro und befasst sich in ihrer Freizeit mit ihrer Stelle bei der Bern Pride.
 
@@ -33,7 +35,9 @@ Diese Erfahrung, mit Menschen für ein Ziel einzustehen und zusammen etwas zu tu
 
 Der CSD, oder Christopher Street Day, ist ein jährliches Fest, das weltweit in vielen Städten gefeiert wird. Der CSD hat seinen Ursprung in den Stonewall-Unruhen, die im Juni 1969 in der Christopher Street in New York stattfanden. Diese Straße ist der Namensgeber für dieses Fest. Bei den Unruhen protestierten Mitglieder der LGBTQ+-Community gegen Polizeirazzien und Diskriminierung, was einen Grundstein für die Rechte der LGBTQ+-Community weltweit legte. Seitdem hat sich der CSD zu einer jährlichen Feier entwickelt, die Vielfalt, Stolz und den Kampf um Gleichberechtigung repräsentiert. Ein anderer Name für dieses Fest ist Pride, was auf den Stolz verweist, zur LGBTQ+-Community zu gehören, und nicht nur den Protest vom Juni 1969 feiert. Vor 2023 hatte Bern keinen offiziellen CSD, sondern nur vereinzelt Aktionen. 2023 fanden in der Hauptstadt der Schweiz, Bern, die EuroGames statt. Die EuroGames sind ein sportliches Großereignis, das vor allem die LGBTQ+-Community sponsert. In Kooperation mit den EuroGames entstand Bern Pride, die das Event mitorganisierte. Nachdem die EuroGames im nächsten Jahr weiterzogen, gründeten die Personen aus dem letztjährigen Komitee zusammen mit neuen Mitgliedern einen neuen offiziellen Verein, der sich mit dem CSD in Bern und Bern Pride befasst. 2024 findet dann die erste alleinstehende Bern Pride statt.
 
-> *Es sind alle freiwillig da, weil sie einfach eine tolle Pride bilden wollen.*
+> *"Es sind alle freiwillig da, weil sie einfach eine tolle Pride bilden wollen."*
+>
+> *Lena Maria Carnal*
 
 
 
